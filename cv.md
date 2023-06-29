@@ -5,3 +5,4 @@ I graduated from the railway university, worked for 5 years as an engineer in th
 I want to understand what IT is. I consider my ability to work hard and hard as my strength, and slow assimilation of new information as my weakness
 No IT skills
 English level A1
+@
