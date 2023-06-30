@@ -1,1 +1,1 @@
-# rsschool-cv
+https://pankrizaka.github.io/rsschool-cv/
